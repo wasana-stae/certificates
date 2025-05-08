@@ -31,5 +31,5 @@ Worldwide School of English, New Zealand
 
 ## 📫 Contact
 - 📧 wasana.stae@gmail.com  
-- 💼 [LinkedIn](https://linkedin.com/in/wasana-saetae)  
+- 💼 [LinkedIn]([https://linkedin.com/in/wasana-saetae](https://www.linkedin.com/in/wasana-saetae-08b597290/))  
 - 📝 [Medium Blog](https://medium.com/@wasana.stae)
